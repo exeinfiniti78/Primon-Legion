@@ -226,4 +226,4 @@ Primon Legion is available as a full free version with all features and updates 
 Embark on your adventure today! Download **Primon Legion free** for Windows now and start taming your Primons!
 
 ---
-**Last updated:** 2026-09-15 12:57:55 UTC
+**Last updated:** 2026-09-15 17:27:19 UTC
